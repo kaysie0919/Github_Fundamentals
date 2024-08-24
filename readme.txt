@@ -1,7 +1,4 @@
 hello
 
 boss!!
-bossingg!!
-
-
-nigga
+bossin
